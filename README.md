@@ -9,4 +9,4 @@
 
 ## Day 2
 ### 1 August 2025
-#### My second day at GNDEC started gathering at the auditorium 
+#### My second day at GNDEC started gathering at the auditorium, Dr. Priya Darshani mam gave lecture on 'universal human values'. That was a very educational lecture, she explained us how interal as well as external happiness can he obtained. Then Dr. Arvind Dhingra sir 
