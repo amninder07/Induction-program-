@@ -32,5 +32,5 @@ Then Brigadier P.S. Cheema Sir lectured us about joining NCC, his entry was soo 
 ## Day 6
 ### 7 August 2025
 #### My day six began with maths and physics lectures in the classroom.
-Then we gathered in auditorium and Dr. Lakhvir sir who is incharge of CML 
-Jasvir sir NSS
+Then we gathered in auditorium and Dr. Lakhvir sir who is incharge of CML who briefed us about 'Centre for multi-faceted learning' and asked us to join the team whoever wants to.
+Then Jasvir sir, incharge of NSS club joined us. The members or maybe seniors of that group told us about their group and also they presented a play on the stage and also sung shabads. They also made us play a game, that was a very good and interesting lecture.
