@@ -17,8 +17,8 @@
 ## Day 3
 ### 4 August 2025
 #### My third day began with lecture of Dr. Priya darshini on 'Universal human values' in auditorium which guided us towards conscious and value-based life.
-Then Gautam sir introduced us about Motorsports which was an inspiring lecture, which made us realise the importance of teamwork.
-The Causmic club team told us about their initiatives, creativity as well as leadership.
+#### Then Gautam sir introduced us about Motorsports which was an inspiring lecture, which made us realise the importance of teamwork.
+#### The Causmic club team told us about their initiatives, creativity as well as leadership.
 
 ## Day 4
 ### 5 August 2025
@@ -27,8 +27,8 @@ The Causmic club team told us about their initiatives, creativity as well as lea
 ## Day 5
 ### 6 August 2025
 #### My fifth day started with lecture of Dr. Parminder Singh on student welfare in which he told us about GNDEC locations, different societies and clubs.
-Then Mr. Manpreet Singh who is a gym trainer, lectured us about fitness and eating healthy food. He also told us about his life struggles which motivated us to work hard in life.
-Then Brigadier P.S. Cheema Sir lectured us about joining NCC, his entry was soo wonderful that gave me chills. He told us about army and a little bit about himself. In between his lecture he added some shayaris that made it interesting. His lecture was very inspiring and motivating.
+#### Then Mr. Manpreet Singh who is a gym trainer, lectured us about fitness and eating healthy food. He also told us about his life struggles which motivated us to work hard in life.
+#### Then Brigadier P.S. Cheema Sir lectured us about joining NCC, his entry was soo wonderful that gave me chills. He told us about army and a little bit about himself. In between his lecture he added some shayaris that made it interesting. His lecture was very inspiring and motivating.
 
 ## Day 6
 ### 7 August 2025
