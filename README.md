@@ -27,4 +27,10 @@ The Causmic club team told us about their initiatives, creativity as well as lea
 ### 6 August 2025
 #### My fifth day started with lecture of Dr. Parminder Singh on student welfare in which he told us about GNDEC locations, different societies and clubs.
 Then Mr. Manpreet Singh who is a gym trainer, lectured us about fitness and eating healthy food. He also told us about his life struggles which motivated us to work hard in life.
+Then Brigadier P.S. Cheema Sir lectured us about joining NCC, his entry was soo wonderful that gave me chills. He told us about army and a little bit about himself. In between his lecture he added some shayaris that made it interesting. His lecture was very inspiring and motivating.
 
+## Day 6
+### 7 August 2025
+#### My day six began with maths and physics lectures in the classroom.
+Then we gathered in auditorium and Dr. Lakhvir sir who is incharge of CML 
+Jasvir sir NSS
