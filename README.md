@@ -26,4 +26,5 @@ The Causmic club team told us about their initiatives, creativity as well as lea
 ## Day 5
 ### 6 August 2025
 #### My fifth day started with lecture of Dr. Parminder Singh on student welfare in which he told us about GNDEC locations, different societies and clubs.
-Then Mr. Manpreet Singh who is a gym trainer, lectured us about fitness and eating healthy food and 
+Then Mr. Manpreet Singh who is a gym trainer, lectured us about fitness and eating healthy food. He also told us about his life struggles which motivated us to work hard in life.
+
