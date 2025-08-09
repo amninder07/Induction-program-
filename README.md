@@ -2,7 +2,8 @@
 ### Amninder Kaur  EE
 ## Day 1 
 ### 30 july 2025
-#### My first day at GNDEC started with visiting campus gurudwara where shabad kirtan and ardaas was held, then we had snacks. After that we gathered in auditorium, the stage was beautifully decorated where Harsimran sir welcomed us with his speech.
+#### My first day at GNDEC started with visiting campus gurudwara where shabad kirtan and ardaas was held, then we had snacks.
+#### After that we gathered in auditorium, the stage was beautifully decorated where Harsimran sir welcomed us with his speech.
 #### After that the host invited Harpreet mam for her wisdomful speech. Then our principal sir gave a speech that made us feel we choose the best university.
 #### Then the chief guest Maheshinder sir gave a speech and told about his struggles in life that can be a inspiration for us to work hard in life even after ups and downs.
 #### Then a retired professor from PAU gave speech about discipline etc. After that we went back home and the first day was very good and i feel happy to be a part of this university.
@@ -32,5 +33,5 @@ Then Brigadier P.S. Cheema Sir lectured us about joining NCC, his entry was soo 
 ## Day 6
 ### 7 August 2025
 #### My day six began with maths and physics lectures in the classroom.
-Then we gathered in auditorium and Dr. Lakhvir sir who is incharge of CML who briefed us about 'Centre for multi-faceted learning' and asked us to join the team whoever wants to.
-Then Jasvir sir, incharge of NSS club joined us. The members or maybe seniors of that group told us about their group and also they presented a play on the stage and also sung shabads. They also made us play a game, that was a very good and interesting lecture.
+#### Then we gathered in auditorium and Dr. Lakhvir sir who is incharge of CML who briefed us about 'Centre for multi-faceted learning' and asked us to join the team whoever wants to.
+#### Then Jasvir sir, incharge of NSS club joined us. The members or maybe seniors of that group told us about their group and also they presented a play on the stage and also sung shabads. They also made us play a game, that was a very good and interesting lecture.
