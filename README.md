@@ -21,4 +21,9 @@ The Causmic club team told us about their initiatives, creativity as well as lea
 
 ## Day 4
 ### 5 August 2025
-#### We all gathered in the auditorium and Mrs. Shaffy Makkar mam delivered a lecture on 'Millets Super Food' 
+#### We all gathered in the auditorium and Mrs. Shaffy Makkar mam delivered a lecture on 'Millets Super Food' in which she told us about different types of millets and it's uses. She told us how to make pulses the correct way and different recipes.
+
+## Day 5
+### 6 August 2025
+#### My fifth day started with lecture of Dr. Parminder Singh on student welfare in which he told us about GNDEC locations, different societies and clubs.
+Then Mr. Manpreet Singh who is a gym trainer, lectured us about fitness and eating healthy food and 
